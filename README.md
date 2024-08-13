@@ -5,7 +5,7 @@
 - 📫 How to reach me @9926486685
 - 😄 Pronouns: Sahdev
 - ⚡ Fun fact: i Am Coder
-- ✨ i'm good at computer hardware & networking
+- ✨ i'm good at computer software & hardware and networking
 - ✨ and many more intreseting skills i have so you can contact me
 - THANK YOU 
 
